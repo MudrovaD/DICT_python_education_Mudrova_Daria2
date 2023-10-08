@@ -1,1 +1,2 @@
-Mudrova Daria 519 ÑÑ
+Mudrova Daria 519 ï¿½ï¿½
+Oleksii Rubel
